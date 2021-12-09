@@ -8,6 +8,6 @@
 [آموزش Service Providers در لاراول](https://prct.ir/oWylY)
 
 
-[آدرس دسترسی به دوره آموزشی](https://percept.ir/@codefarm/collection/gplar)
+[آدرس دسترسی به دوره آموزشی](https://prct.ir/c9cRi)
 
 </div>
